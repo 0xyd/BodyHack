@@ -12,4 +12,4 @@
 ![Action 10](https://raw.githubusercontent.com/0xyd/BodyHack/main/ATHLEAN-X/Back/src/Build_a_Big_Back_with_Bands_NO_WEIGHTS-10.gif)
 
 ## Reference
-1. Build a Big Back with Bands (NO WEIGHTS!)[https://www.youtube.com/watch?v=ZfawH9NsTtI]
+1. [Build a Big Back with Bands (NO WEIGHTS!) By ATHLEAN-X](https://www.youtube.com/watch?v=ZfawH9NsTtI)
