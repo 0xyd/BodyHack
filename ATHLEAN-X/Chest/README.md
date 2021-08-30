@@ -12,4 +12,4 @@
 
 
 ## Reference
-1. [Build Big Shoulders with Bands (NO WEIGHTS!) By ATHLEAN-X](https://www.youtube.com/watch?v=NtaPROZOcmM&list=PLkNVLvQwcQ_MeiyIc1GB4N8IBBCLRFn7c&index=8)
+1. [Build Big Chest with Bands (NO WEIGHTS!) By ATHLEAN-X](https://www.youtube.com/watch?v=HY9i5BSC2GQ&list=PLkNVLvQwcQ_MeiyIc1GB4N8IBBCLRFn7c&index=12)
