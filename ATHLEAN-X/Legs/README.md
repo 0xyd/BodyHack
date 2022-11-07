@@ -1,4 +1,4 @@
-# Chest Training
+# Legs Training
 
 ![Action 1](https://raw.githubusercontent.com/0xyd/BodyHack/main/ATHLEAN-X/Legs/src/Build_Bigger_Legs_with_Bands_NO_WEIGHTS.gif)
 ![Action 2](https://raw.githubusercontent.com/0xyd/BodyHack/main/ATHLEAN-X/Legs/src/Build_Bigger_Legs_with_Bands_NO_WEIGHTS_2.gif)
